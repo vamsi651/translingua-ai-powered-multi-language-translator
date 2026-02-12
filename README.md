@@ -1,0 +1,1 @@
+# translingua-ai-powered-multi-language-translator
